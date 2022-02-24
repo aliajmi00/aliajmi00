@@ -2,4 +2,4 @@
 - 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning EVERYTHING
 - 💞️ I’m looking to collaborate on EVERYTHING
-- 📫 You can reach me at aliajmi00@gmail.com || +9647709092158
+- 📫 You can reach me at 'aliajmi00@gmail.com' || +9647709092158
